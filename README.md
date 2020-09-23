@@ -32,3 +32,5 @@ so nice to meet u can i work heare      ples
 - i love eveyr kid!!!!! everyone is invited to the play,
 - i love ,m -
 - i  am 83 ears old , intersting fac.
+- pleas e email me for partner ship s regard ing ginthub o r getting employeed at the ginthub at davedbaszuck@robloxkidplay.com
+- thank for reading kind men,        i want you to acep the re
