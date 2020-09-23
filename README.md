@@ -8,3 +8,16 @@
 - 📫 How to reach me: idk add me r discord  or telgrae or somehing
 - 😄 Pronouns: he guy user man       +????????
 - ⚡ Fun fact: every furry is ga
+
+
+
+### why wi need ur help
+i need ur momny  im por
+i need u coke
+i need hlep with gettin g clout so if ur a clot veteran
+then sur hit me up with
+how to e clot
+### Hi there 👋
+again i like bobux
+its useful in luife
+also  i like gaminj
