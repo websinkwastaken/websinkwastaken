@@ -1,8 +1,5 @@
 ### Hi there 👋
 
-<!--
-**websinkwastaken/websinkwastaken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on FIXING MY FUCKING WEBSITE
@@ -13,4 +10,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: idk add me r discord  or telgrae or somehing
 - 😄 Pronouns: he guy user man       +????????
 - ⚡ Fun fact: every furry is ga
--->
