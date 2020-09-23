@@ -26,3 +26,9 @@ also  i like gaminj
 ### @ginthub  employe
 - omg hi git h   ub rmploye
 so nice to meet u can i work heare      ples
+
+- joks asid,e I am buiderman!! i work at roblox to rovide good experience s while doing the gaming. 
+- i  realy love kids play , that for i made olox
+- i love eveyr kid!!!!! everyone is invited to the play,
+- i love ,m -
+- i  am 83 ears old , intersting fac.
